@@ -1,2 +1,3 @@
-# vbs.bat
-thats a joke virus
+Thats a joke virus
+no will cause damages!!!
+follow the original creator: fariagamer
